@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RuchiDeo266 : lives in her own world 😗
+- 👋 Hi, I’m RUCHI DEO 😗
 - 👀 I’m interested in backend
 - 🌱 I’m currently learning everything in a web
 - 💞️ I’m looking to collaborate on github : pleased to meet you
